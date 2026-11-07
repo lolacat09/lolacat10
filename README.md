@@ -1,7 +1,7 @@
 # lolacat10
 helloo im lola , 16y/o
 
-I love homestuck, nitw, qsmp, utmv, the beatles + more.. 
+I love homestuck, nitw, utmv, the beatles, mcyt + more.. 
 
 im usually hanging out/rping as kanaya in the hs section of safe server 1.. 
 
