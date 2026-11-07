@@ -3,7 +3,7 @@ helloo im lola , 16y/o
 
 I love homestuck, nitw, utmv, the beatles, mcyt + more.. 
 
-im usually hanging out/rping as kanaya in the hs section of safe server 1.. 
+im usually hanging out/semi-rping as kanaya in the hs section of safe server 1.. 
 
 im very nervous a lot of the time and if i come off as rude im SO sorry..!! im just super awkward pls keep that in mind
 
